@@ -1,1 +1,1 @@
-👋 Hi, I’m Summer, independent learner and curious person. 
+👋 Hi, I’m Summer, independent learner and curious person. Nice to have you here.
